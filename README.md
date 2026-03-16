@@ -9,4 +9,4 @@
 - my favorite Formula drivers are Rafael Camara from Formula 2, Gabriel Bortoleto, Kimi Antonelli, and Checo Perez!!!
 - Formula  1, rock/metal, pokemon, hockey, football, newsies and 8:11 fans PLEASE add
 - spacehey and strawpage in the works!
-- add me on discord! (@rafaelcamagoat)
+- add us on discord! (@rafaelcamagoat)
