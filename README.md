@@ -6,7 +6,7 @@
 - for ponytown: im ALWAYS walking around, you might have to chase me down
 - i am EXTREMELY energetic, so if i use all caps, please dont be alarmed!
 - ask me about Formula 1 (2 or 3), alt rock/metal, emo, pokemon and other sports!!!!
-- my favorite Formula drivers are Rafael Camara from Formula 2, Gabriel Bortoleto, Kimi Antonelli, and Checo Perez!!!
+- my favorite Formula drivers are Rafael Camara from Formula 2, Gabriel Bortoleto, Franco Colapinto, Kimi Antonelli, and Checo Perez!!!
 - Formula  1, rock/metal, pokemon, hockey, football, newsies and 8:11 fans PLEASE add
 - spacehey and strawpage in the works!
 - add us on discord! (@rafaelcamagoat)
